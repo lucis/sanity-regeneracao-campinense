@@ -1,0 +1,1 @@
+# sanity-regeneracao-campinense-studio
